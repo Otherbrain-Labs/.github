@@ -1,1 +1,1 @@
-# .github
+`expand your mind`
